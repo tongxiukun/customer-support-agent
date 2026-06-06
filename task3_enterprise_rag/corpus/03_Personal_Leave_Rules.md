@@ -1,0 +1,1 @@
+An employee can take maximum 3 calendar days of unpaid personal leave per single month. Any continuous leave longer than 2 working days requires direct department manager’s formal approval. No base salary will be paid for personal leave days.

@@ -1,0 +1,1 @@
+Daily accommodation reimbursement cap is 400 CNY for tier-1 cities and 300 CNY for secondary cities. Transportation cost gets reimbursed against valid original travel invoices.

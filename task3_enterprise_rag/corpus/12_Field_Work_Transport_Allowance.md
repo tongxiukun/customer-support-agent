@@ -1,0 +1,1 @@
+Daily traffic subsidy cap for out-of-office field work without company vehicle is 50 CNY, supported by detailed work trip description.

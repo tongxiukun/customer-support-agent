@@ -1,0 +1,1 @@
+Monthly outstanding staff gets 500 CNY performance bonus; severe operational mistakes causing financial loss result in partial performance deduction.

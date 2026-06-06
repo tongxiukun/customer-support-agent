@@ -1,0 +1,1 @@
+Company contributes 12% of base salary for housing fund, while individual staff pays 10%. Social insurance premiums are deducted monthly from payroll according to local official contribution base standard.

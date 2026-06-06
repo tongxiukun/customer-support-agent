@@ -1,0 +1,1 @@
+The maximum probation length under employment contract is 6 months. Employees with two consecutive satisfactory monthly assessments can apply for early formal confirmation; poor performance may lead to contract termination.

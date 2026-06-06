@@ -1,0 +1,1 @@
+Headcount adjustment scheme is internal confidential document, restricted for management review only, forbidden to circulate among general workforce.

@@ -1,0 +1,1 @@
+Resigning employees must finish task handover and return company-owned assets including laptop, access card and keys before HR finalizes last payroll settlement.

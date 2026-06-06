@@ -1,0 +1,1 @@
+Full-time regular staff can apply for up to 2 working days per month for remote work. Applications must be submitted via company OA system at least 1 working day in advance. Unapproved absence from office will be marked as unexcused absence.

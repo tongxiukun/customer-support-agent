@@ -1,0 +1,1 @@
+Free job-skill training is organized by admin department. Unauthorized absence from mandatory training leads to monthly performance penalty.

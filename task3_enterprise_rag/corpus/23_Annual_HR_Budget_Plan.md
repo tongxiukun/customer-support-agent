@@ -1,0 +1,1 @@
+Annual recruitment quota and total manpower cost budget is restricted to HR managers and department directors; regular non-manager employees have no access permission.

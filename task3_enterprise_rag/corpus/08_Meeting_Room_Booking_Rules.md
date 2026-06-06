@@ -1,0 +1,1 @@
+All company meeting rooms must be reserved via corporate WeChat. Single booking is limited to maximum 2 hours; unextended expired reservation can be taken over by other employees.

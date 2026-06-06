@@ -1,0 +1,1 @@
+Current and resigned employees shall never disclose client data, project technical documents or internal financial records. Information leakage triggers legal liability and compensation for company losses.

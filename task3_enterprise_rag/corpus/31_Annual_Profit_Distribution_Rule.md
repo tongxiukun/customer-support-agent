@@ -1,0 +1,1 @@
+Dividend allocation policy for company shareholders and management is not available for non-managerial employees.

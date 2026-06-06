@@ -1,0 +1,1 @@
+Original negotiated pricing for core enterprise clients is confidential data, accessible exclusively to sales managers and above positions.

@@ -1,0 +1,1 @@
+Any sick leave longer than 3 consecutive working days needs official medical certificate issued by Grade-2 or above hospital. Leave without valid medical document will be categorized as personal leave.

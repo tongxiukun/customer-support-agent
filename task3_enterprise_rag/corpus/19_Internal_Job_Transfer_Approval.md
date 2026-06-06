@@ -1,0 +1,1 @@
+Cross-department transfer needs dual approval from original department supervisor and receiving department lead; HR updates supplementary employment contract afterward.

@@ -1,0 +1,1 @@
+Per capita cost cap for client business dinner is 150 CNY. Pre-approval from department director is required for high-value hospitality events.

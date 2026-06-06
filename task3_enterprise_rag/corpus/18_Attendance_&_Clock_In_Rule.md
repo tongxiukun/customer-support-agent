@@ -1,0 +1,1 @@
+Work attendance is recorded via location check-in on corporate WeChat. More than 5 late arrivals per month results in corresponding performance deduction.

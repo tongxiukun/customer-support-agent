@@ -1,0 +1,1 @@
+Department manager’s total compensation consists of fixed base salary plus quarterly department performance dividend. Dividend calculation formula is confidential and only accessible to management team.

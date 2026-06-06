@@ -1,0 +1,1 @@
+New employees need to submit copies of ID card, academic certificate and personal bank card during onboarding. HR will create personnel file and activate enterprise workspace permissions after document verification.

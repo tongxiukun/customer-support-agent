@@ -1,0 +1,1 @@
+30 CNY daily meal allowance is provided for on-site working staff; no subsidy is issued on personal leave, sick leave or off-site business travel days.

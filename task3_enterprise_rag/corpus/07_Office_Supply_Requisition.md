@@ -1,0 +1,1 @@
+Every staff has fixed monthly quota for daily stationery. Extra supply request needs signature approval from department lead; high-value equipment follows separate asset procurement workflow.

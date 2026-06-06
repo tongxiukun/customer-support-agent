@@ -1,0 +1,1 @@
+Financing progress and agreed investment amount are strictly confidential for board members and senior management only.

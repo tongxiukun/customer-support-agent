@@ -1,0 +1,1 @@
+Annual performance calculation policy for C-level executives can only be viewed by General Manager and Chief HR Officer.

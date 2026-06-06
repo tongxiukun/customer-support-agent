@@ -1,0 +1,1 @@
+Weekday overtime is compensated at 1.5x regular hourly salary; weekend overtime pays 2x basic wage; statutory public holiday overtime is calculated at 3x base salary.

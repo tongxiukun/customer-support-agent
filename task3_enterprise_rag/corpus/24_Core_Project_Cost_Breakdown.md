@@ -1,0 +1,1 @@
+Raw material and outsourcing cost details of core business projects are confidential, available only to project leads and senior management.

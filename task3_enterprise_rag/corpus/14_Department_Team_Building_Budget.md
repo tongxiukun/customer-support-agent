@@ -1,0 +1,1 @@
+Annual team building budget is calculated by headcount: 1200 CNY per employee each fiscal year. Overspent cost is covered by respective department’s own fund.
